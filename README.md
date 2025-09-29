@@ -1,5 +1,5 @@
 ## Discord
-<a href="https://discord.com/users/1122605531530539240"><img src="https://lanyard.cnrad.dev/api/1122605531530539240?hideTag=true&showDisplayName=true&hideDecoration=true&hideSpotify=true&theme=light&idleMessage=real%20panpi&bg=de0b0b" /></a>
+<a href="https://discord.com/users/1122605531530539240"><img src="https://lanyard.cnrad.dev/api/1122605531530539240hideTag=true&showDisplayName=true&hideDecoration=true&hideSpotify=true&theme=light&idleMessage=real%20panpi&bg=de0b0b" /></a>
 
 - meraba ben @gokalp
 
