@@ -1,7 +1,4 @@
-## Discord
-![Discord](https://lanyard.cnrad.dev/api/1122605531530539240?theme=dark&showDisplayName=true&showAvatar=true&hideDiscrim=false&hideStatus=false)
-
-
+fiil what gokalp fiils 😏✌️
 - Welcome to my pornofil 👿👿👿
 
 <h1>gokalb :</h1>
